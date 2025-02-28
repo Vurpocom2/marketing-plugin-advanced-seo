@@ -1,0 +1,1 @@
+# marketing-plugin-advanced-seo
